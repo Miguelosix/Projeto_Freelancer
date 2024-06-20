@@ -1,1 +1,1 @@
-# Projeto_Freelancer
+# Projeto_Freelancer - Miguel Augusto Pimentel Pinto e João Pedro Monnteiro
